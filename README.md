@@ -1,0 +1,1 @@
+# Winsnap-Full-Version-Unlocked
